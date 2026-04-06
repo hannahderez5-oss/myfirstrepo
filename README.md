@@ -1,2 +1,2 @@
 # myfirstrepo
-143 mitchiro
+My name is Hannah Derez from BSIT2B. My hobbies is to watch and playing games and I love arts, and I only committed to Mitch. As my skills, yes i do the cooking, yes i do the cleaning, plus, i keep the na-na real swear for you eating.
